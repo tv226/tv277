@@ -1,50 +1,50 @@
-<p>2021/5/28b
+<p>2021/5/29
 <p>• 网址不定期更新，连不上时，请不同时间再试试。
 <p>• 建议用谷歌或火狐官方浏览器访问。
 <p>◎ • 视 频： 
-<a href="http://hyh.lexmarktr.com/" target="_blank">网址一</a> 　 
-<a href="http://hrf.lexmarktr.com/" target="_blank">网址二</a> 　 
-<a href="http://hwe.lexmarktr.com/b.html" target="_blank">网址三</a>
+<a href="http://hyi.lexmarktr.com/" target="_blank">网址一</a> 　 
+<a href="http://hrg.lexmarktr.com/" target="_blank">网址二</a> 　 
+<a href="http://hwf.lexmarktr.com/b.html" target="_blank">网址三</a>
 <a href="https://yadi.sk/d/d0sUeAOpal3njw" target="_wblank">　• 云下载 </a></p>
 <p>◆ 分 享 网 址 （https://c.itpc.ga/ 请 收 藏） </p>
 
 <p>◎ • 小 站：  
-<a href="http://hyh.lexmarktr.com/f.html" target="_blank">网址一</a> 　 
-<a href="http://hrf.lexmarktr.com/h.html" target="_blank">网址二</a> 　 
-<a href="http://hwe.lexmarktr.com/k/" target="_blank">网址三</a></p>
+<a href="http://hyi.lexmarktr.com/f.html" target="_blank">网址一</a> 　 
+<a href="http://hrg.lexmarktr.com/h.html" target="_blank">网址二</a> 　 
+<a href="http://hwf.lexmarktr.com/k/" target="_blank">网址三</a></p>
 <p>◎ • 翻 墙 软 件 ：  
-<a href="http://hyh.lexmarktr.com/ff/" target="_blank">网址一</a> 　 
-<a href="http://hrf.lexmarktr.com/s/read/a1_nd.html" target="_blank">网址二</a> 　 
-<a href="http://hwe.lexmarktr.com/ff/index.html" target="_blank">网址三</a></p>
+<a href="http://hyi.lexmarktr.com/ff/" target="_blank">网址一</a> 　 
+<a href="http://hrg.lexmarktr.com/s/read/a1_nd.html" target="_blank">网址二</a> 　 
+<a href="http://hwf.lexmarktr.com/ff/index.html" target="_blank">网址三</a></p>
 <p>◎ • 每 日 新 闻：  
-<a href="http://hyh.lexmarktr.com/day/" target="_blank">网址一</a> 　 
-<a href="http://hrf.lexmarktr.com/day/" target="_blank">网址二</a> 　 
-<a href="http://hwe.lexmarktr.com/day/index.html" target="_blank">网址三</a></p>
+<a href="http://hyi.lexmarktr.com/day/" target="_blank">网址一</a> 　 
+<a href="http://hrg.lexmarktr.com/day/" target="_blank">网址二</a> 　 
+<a href="http://hwf.lexmarktr.com/day/index.html" target="_blank">网址三</a></p>
 <p>◎ • 短 波 分 享：  
-<a href="http://hyh.lexmarktr.com/h/" target="_blank">网址一</a> 　 
-<a href="http://hrf.lexmarktr.com/h/" target="_blank">网址二</a> 　 
-<a href="http://hwe.lexmarktr.com/h/index.html" target="_blank">网址三</a></p>
+<a href="http://hyi.lexmarktr.com/h/" target="_blank">网址一</a> 　 
+<a href="http://hrg.lexmarktr.com/h/" target="_blank">网址二</a> 　 
+<a href="http://hwf.lexmarktr.com/h/index.html" target="_blank">网址三</a></p>
 <p>◎ • 九 评.三 退：  
-<a href="http://hyh.lexmarktr.com/t/" target="_blank">网址一</a> 　 
-<a href="http://hrf.lexmarktr.com/v2/index.html" target="_blank">网址二</a> 　 
-<a href="http://hwe.lexmarktr.com/tt/index.html" target="_blank">网址三</a> 　</p>
+<a href="http://hyi.lexmarktr.com/t/" target="_blank">网址一</a> 　 
+<a href="http://hrg.lexmarktr.com/v2/index.html" target="_blank">网址二</a> 　 
+<a href="http://hwf.lexmarktr.com/tt/index.html" target="_blank">网址三</a> 　</p>
 <p>◎ • (E2_视频/语音)《九 评》视频/语音: 
-<a href="http://hyh.lexmarktr.com/7738.html" target="_blank">网址一</a> 　 
-<a href="http://hrf.lexmarktr.com/7614.html" target="_blank">网址二</a> 　 
-<a href="http://hwe.lexmarktr.com/7633.html" target="_blank">网址三</a></p>
+<a href="http://hyi.lexmarktr.com/7738.html" target="_blank">网址一</a> 　 
+<a href="http://hrg.lexmarktr.com/7614.html" target="_blank">网址二</a> 　 
+<a href="http://hwf.lexmarktr.com/7633.html" target="_blank">网址三</a></p>
 <p>◎ • 三 退 管 道...退 党 网：  
-<a href="http://hyh.lexmarktr.com/go/td1.html" target="_blank">网址一</a> 　 
-<a href="http://hrf.lexmarktr.com/go/td2.html" target="_blank">网址二</a> 　 
-<a href="http://hwe.lexmarktr.com/go/td3.html" target="_blank">网址三</a></p>
+<a href="http://hyi.lexmarktr.com/go/td1.html" target="_blank">网址一</a> 　 
+<a href="http://hrg.lexmarktr.com/go/td2.html" target="_blank">网址二</a> 　 
+<a href="http://hwf.lexmarktr.com/go/td3.html" target="_blank">网址三</a></p>
 <p>◎ • (F1) 三 退 管 道(一)： 
-<a href="http://hyh.lexmarktr.com/dd/" target="_blank">网址一</a> 　 
-<a href="http://hrf.lexmarktr.com/s/read/a1_tdx.html" target="_blank">网址二</a> 　 
-<a href="http://hwe.lexmarktr.com/dd/" target="_blank">网址三</a></p>
+<a href="http://hyi.lexmarktr.com/dd/" target="_blank">网址一</a> 　 
+<a href="http://hrg.lexmarktr.com/s/read/a1_tdx.html" target="_blank">网址二</a> 　 
+<a href="http://hwf.lexmarktr.com/dd/" target="_blank">网址三</a></p>
 <p>◎ • (F2)三 退 管 道(二)： 
-<a href="http://hwe.lexmarktr.com/d/" target="_blank">网址一</a> 　 
-<a href="http://hyh.lexmarktr.com/d/index.html" target="_blank">网址二</a> 　 
-<a href="http://hrf.lexmarktr.com/d/" target="_blank">网址三</a></p>
+<a href="http://hwf.lexmarktr.com/d/" target="_blank">网址一</a> 　 
+<a href="http://hyi.lexmarktr.com/d/index.html" target="_blank">网址二</a> 　 
+<a href="http://hrg.lexmarktr.com/d/" target="_blank">网址三</a></p>
 <p>◎ • PDF电子书：  
-<a href="http://hyh.lexmarktr.com/p/" target="_blank">网址一</a> 　 
-<a href="http://hrf.lexmarktr.com/p/index.html" target="_blank">网址二</a> 　 
-<a href="http://hwe.lexmarktr.com/p/" target="_blank">网址三</a></p>
+<a href="http://hyi.lexmarktr.com/p/" target="_blank">网址一</a> 　 
+<a href="http://hrg.lexmarktr.com/p/index.html" target="_blank">网址二</a> 　 
+<a href="http://hwf.lexmarktr.com/p/" target="_blank">网址三</a></p>
