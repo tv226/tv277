@@ -6,7 +6,7 @@
 <a href="http://hru.lexmarktr.com/" target="_blank">网址二</a> 　 
 <a href="http://hwt.lexmarktr.com/b.html" target="_blank">网址三</a>
 <a href="https://yadi.sk/d/d0sUeAOpal3njw" target="_wblank">　• 云下载 </a></p>
-<p>◆ 分 享 网 址 （https://h.itpc.ga/ 请 收 藏） </p>
+<p>◆ 分 享 网 址 （https://b.itpc.ga/ 请 收 藏） </p>
 
 <p>◎ • 小 站：  
 <a href="http://hyx.lexmarktr.com/f.html" target="_blank">网址一</a> 　 
